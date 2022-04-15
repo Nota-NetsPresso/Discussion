@@ -6,7 +6,7 @@ We hope that you:
 - ⁉️ Ask questions you’re wondering about.
 - 💡 Share ideas.
 - 🤝 Engage with other community members.
-- 💪 Welcome others and are open-minded. Remember that this is a community we build together.
+- 🏛 Welcome others and are open-minded. Remember that this is a community we build together.
 
 Please feel free to ask anything we will appreciate your valuable feedbacks and ideas.
 
